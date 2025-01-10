@@ -6,4 +6,4 @@
 # final desain
 ![image](https://github.com/user-attachments/assets/99748a26-e48d-46f2-89f4-7f43d865ac64)
 # video
-https://github.com/user-attachments/assets/29f1f80f-7b0d-4b30-b962-f55e05b46413
+https://github.com/user-attachments/assets/6484fded-94af-466a-b2bf-e120bb8e2493
